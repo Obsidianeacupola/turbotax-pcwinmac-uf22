@@ -1,4 +1,4 @@
-# 
+# Exclusivo TurboTax fluxo de trabalho para Mac OS | Elite TurboTax fluxo de trabalho para PC Windows. Com processamento em lote e cálculo de impostos — otimizado para máximo desempenho em cada plataforma.
 
 
 
